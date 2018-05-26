@@ -1,0 +1,2 @@
+# GitHub
+Jurnal publichniy Islamiskiy
